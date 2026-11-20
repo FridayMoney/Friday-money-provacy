@@ -1,1 +1,1 @@
-# Friday-money-provacy
+# Friday-money-privacy
